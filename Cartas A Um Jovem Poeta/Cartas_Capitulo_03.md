@@ -2,6 +2,8 @@
 
 ### Frases Da Carta 03:
 
+_23 de abril de 1903_
+
 * Mas posso lhe dizer que, mesmo depois, o leitor volta sempre a percorrer esses
 livros com espanto, e que eles não perdem nada do seu poder fantástico,
 persiste seu caráter fabuloso, com o qual cumularam quem os leu pela primeira
