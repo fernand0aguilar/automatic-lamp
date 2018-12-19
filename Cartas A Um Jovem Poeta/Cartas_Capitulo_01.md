@@ -2,6 +2,7 @@
 
 ### Frases Da Carta 01:
 
+Paris,
 _17 de fevereiro de 1903_
 
 * Não há nada que toque menos uma obra de arte do que palavras de crítica: elas não passam de mal-entendidos mais ou menosafortunados. As coisas em geral não são tão fáceis de apreender e dizer como normalmente nos querem levar a acreditar; 

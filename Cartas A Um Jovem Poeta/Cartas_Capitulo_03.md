@@ -2,6 +2,7 @@
 
 ### Frases Da Carta 03:
 
+Viareggio perto de Pisa (Itália),
 _23 de abril de 1903_
 
 * Mas posso lhe dizer que, mesmo depois, o leitor volta sempre a percorrer esses

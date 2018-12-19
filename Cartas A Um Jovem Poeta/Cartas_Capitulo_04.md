@@ -2,6 +2,8 @@
 
 ### Frases Da Carta 04:
 
+Temporariamente em Worpswede,
+perto de Bremen,
 _16 de julho de 1903_
 
 * Aqui, onde há uma região poderosa em torno de mim, sobre a
